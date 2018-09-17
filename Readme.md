@@ -1,12 +1,7 @@
->Joker said:
->If you are good at something , never do it for free.........
->Madness is like gravity, all it takes is just a little push......
-> HAHAHAHAHAHAHA..........
-
-
-
-
-
->J said:
-:1+: :sparkles: :camel: :tada:
-:rocket: :metal: :octocat:
+Reza Said:
+ :+1: :sparkles: :camel: :tada: 
+ :rocket: :meta;: :octocat:
+>i am the best teacher.
+>You shall fear because I have all the power.
+>Trancendance.
+>
